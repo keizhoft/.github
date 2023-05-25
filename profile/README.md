@@ -1,4 +1,5 @@
-![logo keizhoft 1](https://user-images.githubusercontent.com/98641173/224068312-5dcdc1ee-65e8-425c-b44e-362f7c6b378f.jpg)
+![Logo 4](https://github.com/keizhoftdigitalnusantara/.github/assets/98641173/ecf83b80-e19a-4e7e-ba5e-bb784b3c8b38)
+
 
 # About Keizhoft Digital Nusantara
 
